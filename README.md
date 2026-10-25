@@ -210,4 +210,4 @@ Duke Nukem: Manhattan Project is available as a full free version, with all feat
 Don't wait any longer! Download Duke Nukem: Manhattan Project for free and join the fight against Doctor Morphix today!
 
 ---
-**Last updated:** 2026-10-25 14:41:46 UTC
+**Last updated:** 2026-10-25 17:59:24 UTC
